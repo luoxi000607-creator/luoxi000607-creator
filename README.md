@@ -1,4 +1,4 @@
-![Rosie 签名与人物背影，Packaging Design · Visual Design](./profile-banner.png)
+![Rosie 签名与星空下举起星星的女孩，Packaging Design · Visual Design](./profile-banner.png)
 
 # Rosie · 设计师
 
